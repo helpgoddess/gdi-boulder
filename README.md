@@ -1,4 +1,1 @@
-I love GDI Boulder
-
-
-Me too!!! 
+I love GDI Boulder and kittens!
